@@ -2,7 +2,7 @@
 - 👀 I’m interested in EVERYTHING
 - 🌱 I’m currently learning ANYTHING AND EVERYTHING
 - 💞️ I’m looking to collaborate on WHEREVER YOU WANT
-- 📫 How to reach me EMAIL-20247108anurag@ambiencepublicschool.com/ 
+- 📫 How to reach me EMAIL- "20247108anurag@ambiencepublicschool.com"
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I WILL SUCCEED IN WHATEVER I DO
 
